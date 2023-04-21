@@ -16,16 +16,16 @@
 - - - -
 #### 联系真人客服（请在浏览器中打开）
 
-**:speech_balloon: [在线客服直达（分钟级回复）](https://lets-contact.onelink.me/0dzS/9tj7vfv1)**
+**:speech_balloon: [在线客服直达（分钟级回复）](https://u.z8n.net/AHbQ0a)**
 
 **:e-mail: [邮件客服（分钟级回复）](mailto:letsvpn@rbox.me)**
 - - - -
 #### 关注社交媒体（请在翻墙网络下打开）
-**:couple: [Facebook](https://lets-contact.onelink.me/0dzS/x5x4mc59)** 
+**:couple: [Facebook](https://www.facebook.com/letsvpn/)** 
 
-**:camera: [Instagram](https://lets-contact.onelink.me/0dzS/96bhdw1y)**
+**:camera: [Instagram](https://www.instagram.com/letsvpn/)**
 
-**:bird: [Twitter](https://lets-contact.onelink.me/0dzS/50o50pw1)** 
+**:bird: [Twitter](https://twitter.com/letsvpn)** 
 
-**:airplane: [Telegram](https://lets-contact.onelink.me/0dzS/v56y8i6i)**
+**:airplane: [Telegram](http://t.me/letsvpn11)**
 ###

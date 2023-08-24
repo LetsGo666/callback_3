@@ -16,7 +16,7 @@
 - - - -
 #### 联系真人客服（请在浏览器中打开）
 
-**:speech_balloon: [在线客服直达（分钟级回复）](https://u.z8n.net/AHbQ0a)**
+**:speech_balloon: [在线客服直达（分钟级回复）](https://help.stnrun.art/letsvpn-world/en/collections/1611781-%E4%B8%AD%E6%96%87%E5%B8%AE%E5%8A%A9)**
 
 **:e-mail: [邮件客服（分钟级回复）](mailto:letsvpn@rbox.me)**
 - - - -
